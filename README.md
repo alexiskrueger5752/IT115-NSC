@@ -1,2 +1,2 @@
-# IT 115 ff f f f f f f f f f ff
+# IT 115 ff f
 # Alexis M Krueger
